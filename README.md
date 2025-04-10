@@ -1,1 +1,0 @@
-# krrknlogn.github.io
